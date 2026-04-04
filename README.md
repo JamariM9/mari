@@ -1,4 +1,4 @@
-Jamari Moore
+Jamari Moore Portfolio
 
 Digital Hands Projects 
 
